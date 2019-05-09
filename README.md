@@ -1,5 +1,5 @@
-# N A R O X; 
-![LeMéiléur,DEV](https://cdn.discordapp.com/attachments/573232110475673607/573668832745619458/NB.png)
+# N I K O N :
+![LeMéiléur,DEV](https://media.discordapp.net/attachments/573232110475673607/573668832745619458/NB.png?width=300&height=300)
 
 <a href="https://discord.gg/P96Cjzh"><img src="https://discordapp.com/api/guilds/514950689508818992/embed.png" alt="Discord server" /></a>
 
